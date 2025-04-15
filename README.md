@@ -1,2 +1,0 @@
-# fithriaura.github.io
-website
